@@ -1,0 +1,10 @@
+# RuteLokal
+Panduan pariwisata nusantara, ulasan kuliner lokal khas daerah, tips liburan hemat, dan rencana rute perjalanan terlengkap.
+
+## Core Pages
+- [Beranda](https://www.rutelokal.web.id/) - Halaman utama rute petualangan.
+- [Tentang Kami](https://www.rutelokal.web.id/#about) - Informasi tentang redaksi RuteLokal.
+- [Kontak](https://www.rutelokal.web.id/contact) - Hubungi kami.
+- [Disclaimer](https://www.rutelokal.web.id/disclaimer) - Sangkalan hukum informasi wisata.
+- [Privacy Policy](https://www.rutelokal.web.id/privacy) - Kebijakan privasi.
+- [Terms of Service](https://www.rutelokal.web.id/terms) - Syarat & ketentuan.
