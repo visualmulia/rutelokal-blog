@@ -1,12 +1,14 @@
 ---
 title: "5 Rute Perjalanan Wisata Jogja Searah: Hemat Waktu & Tenaga"
-date: "2026-07-15"
-author: "Admin"
-featured_image: ""
+date: 2026-07-15
+author: Admin Rute Lokal
+featured_image: /images/uploads/01.png
+description: Temukan 5 rute perjalanan wisata Jogja searah yang efisien. Cocok
+  untuk liburan 1-3 hari, hemat waktu, dan maksimalkan kunjungan ke destinasi
+  favorit.
 tags:
-  - "rute perjalanan wisata jogja"
-  - "wisata jogja"
-description: "Temukan 5 rute perjalanan wisata Jogja searah yang efisien. Cocok untuk liburan 1-3 hari, hemat waktu, dan maksimalkan kunjungan ke destinasi favorit."
+  - rute perjalanan wisata jogja
+  - wisata jogja
 ---
 
 ## Rute Perjalanan Wisata Jogja Searah: Solusi Liburan Efisien
