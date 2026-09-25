@@ -1,12 +1,15 @@
 ---
-title: "Hidden Gems Tempat Wisata Tersembunyi di Yogyakarta: 10 Spot Anti-Mainstream yang Wajib Kamu Kunjungi"
-date: "2026-08-07"
-author: "Admin"
-featured_image: ""
+title: "Hidden Gems Tempat Wisata Tersembunyi di Yogyakarta: 10 Spot
+  Anti-Mainstream yang Wajib Kamu Kunjungi"
+date: 2026-08-07
+author: Admin
+featured_image: /images/uploads/hidden-gems-yogyakarta.jpg
+description: Jelajahi hidden gems tempat wisata tersembunyi di Yogyakarta yang
+  masih alami dan sepi. Dari pantai eksotis hingga air terjun rahasia, temukan
+  rekomendasi terbaik di sini!
 tags:
-  - "hidden gems"
-  - "Yogyakarta"
-description: "Jelajahi hidden gems tempat wisata tersembunyi di Yogyakarta yang masih alami dan sepi. Dari pantai eksotis hingga air terjun rahasia, temukan rekomendasi terbaik di sini!"
+  - hidden gems
+  - Yogyakarta
 ---
 
 Yogyakarta selalu punya cara untuk memikat hati para pelancong. Di balik kemasyhuran Malioboro dan Candi Borobudur, terdapat banyak hidden gems tempat wisata tersembunyi di Yogyakarta yang menawarkan keindahan autentik tanpa keramaian. Jika kamu bosan dengan destinasi mainstream dan ingin merasakan petualangan yang lebih personal, artikel ini adalah panduan tepat untukmu. Kami telah merangkum 10 spot tersembunyi yang wajib masuk daftar perjalananmu, lengkap dengan informasi akses, daya tarik, dan tips berkunjung.
