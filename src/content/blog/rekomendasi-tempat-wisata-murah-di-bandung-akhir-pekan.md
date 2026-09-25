@@ -19,7 +19,8 @@ Berikut adalah daftar tempat wisata murah meriah di Bandung yang sangat layak di
 
 ### 1. Kiara Artha Park
 
-![](https://lh3.googleusercontent.com/gps-cs-s/AHRPTWk46wZRmfyPeObiXqGKrdHs3KHq1cc5k_DvtHi0h1rqo-F9nR7LDYUdN4OY7-wz6KvwsHvs0RBCjYf24JpiMWlP_7xlJaGJ0Go-AemNPIwvoWy-djjV_4A8eGQnDsDmsGLL3RX7yQ=s1360-w1360-h1020-rw)
+![Spot foto danau buatan dan area hijau di Kiara Artha Park tempat wisata murah di Bandung](https://lh3.googleusercontent.com/gps-cs-s/AHRPTWk46wZRmfyPeObiXqGKrdHs3KHq1cc5k_DvtHi0h1rqo-F9nR7LDYUdN4OY7-wz6KvwsHvs0RBCjYf24JpiMWlP_7xlJaGJ0Go-AemNPIwvoWy-djjV_4A8eGQnDsDmsGLL3RX7yQ=s1360-w1360-h1020-rw)
+*Sumber: Google Maps / Kiara Artha Park*
 
 Kiara Artha Park menjadi salah satu favorit warga Bandung untuk menghabiskan waktu akhir pekan. Dengan tiket masuk hanya Rp10.000 per orang, Anda sudah bisa menikmati area hijau yang luas, danau buatan, serta berbagai spot foto instagramable. Tempat ini sangat cocok untuk piknik keluarga atau sekadar bersantai sambil menikmati udara segar.
 
@@ -29,7 +30,8 @@ Kiara Artha Park menjadi salah satu favorit warga Bandung untuk menghabiskan wak
 
 ### 2. Babakan Siliwangi (Baksil)
 
-![](https://dynamic-media-cdn.tripadvisor.com/media/photo-o/23/90/14/46/caption.jpg?w=1400&h=-1&s=1)
+![Jembatan kayu Forest Walk Babakan Siliwangi Baksil hutan kota gratis di Bandung](https://dynamic-media-cdn.tripadvisor.com/media/photo-o/23/90/14/46/caption.jpg?w=1400&h=-1&s=1)
+*Sumber: TripAdvisor / Babakan Siliwangi*
 
 Babakan Siliwangi, atau yang akrab disebut Baksil, adalah hutan kota seluas 3,8 hektare yang terletak di pusat Kota Bandung. Tempat ini gratis dan menawarkan jalur trekking, jembatan kayu Forest Walk, serta pemandangan hijau yang menyejukkan. Cocok untuk jogging, jalan santai, atau foto-foto.
 
@@ -39,7 +41,8 @@ Babakan Siliwangi, atau yang akrab disebut Baksil, adalah hutan kota seluas 3,8 
 
 ### 3. Teras Cikapundung
 
-![](https://myeatandtravelstory.wordpress.com/wp-content/uploads/2016/04/cover-teras-cikapundung-1280x854.jpg)
+![Suasana asri taman tepi sungai Teras Cikapundung destinasi liburan murah di Bandung](https://myeatandtravelstory.wordpress.com/wp-content/uploads/2016/04/cover-teras-cikapundung-1280x854.jpg)
+*Sumber: Dok. Wisata Teras Cikapundung*
 
 Teras Cikapundung adalah ruang publik yang dibangun di tepi Sungai Cikapundung. Tempat ini gratis dan menyajikan pemandangan sungai yang asri, taman, serta area duduk yang nyaman. Sering dijadikan tempat nongkrong santai sambil menikmati aliran sungai.
 
@@ -49,7 +52,8 @@ Teras Cikapundung adalah ruang publik yang dibangun di tepi Sungai Cikapundung. 
 
 ### 4. Braga
 
-![](https://zjglidcehtsqqqhbdxyp.supabase.co/storage/v1/object/public/atourin/images/destination/bandung/jalan-braga-profile1695282779.jpeg?x-image-process=image/resize,p_100,limit_1/imageslim)
+![Bangunan bersejarah peninggalan kolonial dan spot foto estetik di Jalan Braga Bandung](https://zjglidcehtsqqqhbdxyp.supabase.co/storage/v1/object/public/atourin/images/destination/bandung/jalan-braga-profile1695282779.jpeg?x-image-process=image/resize,p_100,limit_1/imageslim)
+*Sumber: Atourin / Pesona Braga*
 
 Jalan Braga adalah ikon kota Bandung yang penuh dengan bangunan bersejarah dan kafe-kafe unik. Meskipun beberapa kafe mungkin mahal, Anda bisa menikmati suasana Braga hanya dengan berjalan kaki. Banyak spot foto menarik dan mural yang bisa dinikmati tanpa biaya.
 
@@ -59,7 +63,8 @@ Jalan Braga adalah ikon kota Bandung yang penuh dengan bangunan bersejarah dan k
 
 ### 5. Taman Batu (Stone Garden) – Padalarang
 
-![](https://travelspromo.com/wp-content/uploads/2019/04/Stone-Garden-Bandung-Fransiska-Lubies-1536x1153.jpg)
+![Pemandangan tebing dan formasi bebatuan karst Stone Garden Padalarang Bandung Barat](https://travelspromo.com/wp-content/uploads/2019/04/Stone-Garden-Bandung-Fransiska-Lubies-1536x1153.jpg)
+*Sumber: Travelspromo / Stone Garden*
 
 Meskipun sedikit di luar kota, Taman Batu atau Stone Garden di Padalarang menawarkan pemandangan bebatuan unik yang mirip dengan Stonehenge. Tiket masuknya sangat terjangkau, yaitu Rp10.000 per orang. Tempat ini cocok untuk pecinta fotografi dan pendaki pemula.
 
@@ -69,7 +74,8 @@ Meskipun sedikit di luar kota, Taman Batu atau Stone Garden di Padalarang menawa
 
 ### 6. Ranca Upas (Kampung Cai)
 
-![](https://blog.bookingtogo.com/wp-content/uploads/2021/10/kolam-air-panas-ranca-upas.jpg)
+![Penangkaran rusa dan kolam air panas alami Ranca Upas Ciwidey tempat wisata murah Bandung](https://blog.bookingtogo.com/wp-content/uploads/2021/10/kolam-air-panas-ranca-upas.jpg)
+*Sumber: Bookingtogo / Ranca Upas*
 
 Ranca Upas, atau Kampung Cai, adalah kawasan wisata alam di Ciwidey yang terkenal dengan hamparan rumput hijau dan rusa-rusa jinak. Tiket masuknya Rp28.000 per orang, namun Anda bisa menikmati pemandangan alam yang indah dan berfoto dengan rusa tanpa biaya tambahan. Tersedia juga area camping dengan biaya sewa tenda.
 
@@ -79,7 +85,8 @@ Ranca Upas, atau Kampung Cai, adalah kawasan wisata alam di Ciwidey yang terkena
 
 ### 7. Kawah Putih Ciwidey
 
-![](https://s-light.tiket.photos/t/01E25EBZS3W0FY9GTG6C42E1SE/rsfit1440960gsm/events/2021/02/04/b9a441ee-a409-4897-b202-d20ddf1e558f-1612405052139-64d56f2449877ca5d518b0924113893f.jpg)
+![Danau kawah eksotis warna putih kehijauan Kawah Putih Ciwidey destinasi populer Bandung](https://s-light.tiket.photos/t/01E25EBZS3W0FY9GTG6C42E1SE/rsfit1440960gsm/events/2021/02/04/b9a441ee-a409-4897-b202-d20ddf1e558f-1612405052139-64d56f2449877ca5d518b0924113893f.jpg)
+*Sumber: Tiket.com / Kawah Putih Ciwidey*
 
 Kawah Putih adalah destinasi wisata alam ikonik di Bandung dengan danau kawah berwarna putih kehijauan yang eksotis. Tiket masuknya Rp25.000 per orang (weekday) dan Rp30.000 (weekend). Meskipun sedikit lebih mahal, pemandangannya sangat worth it untuk dikunjungi.
 
