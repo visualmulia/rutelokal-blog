@@ -1,12 +1,15 @@
 ---
-title: "Panduan Road Trip Rute Pantai Selatan Jawa Pacitan: Jalur, Tips, dan Destinasi Wajib"
-date: "2026-07-24"
-author: "Admin"
-featured_image: ""
+title: "Panduan Road Trip Rute Pantai Selatan Jawa Pacitan: Jalur, Tips, dan
+  Destinasi Wajib"
+date: 2026-07-24
+author: Admin
+featured_image: /images/uploads/rute-pacitan-update.webp
+description: "Panduan lengkap road trip rute pantai selatan Jawa Pacitan: jalur
+  terbaik, tips aman, destinasi seperti Pantai Kasap dan Sungai Maron, serta
+  tabel perbandingan rute alternatif."
 tags:
-  - "road trip pacitan"
-  - "pantai selatan jawa"
-description: "Panduan lengkap road trip rute pantai selatan Jawa Pacitan: jalur terbaik, tips aman, destinasi seperti Pantai Kasap dan Sungai Maron, serta tabel perbandingan rute alternatif."
+  - road trip pacitan
+  - pantai selatan jawa
 ---
 
 Road trip menyusuri rute pantai selatan Jawa Pacitan adalah pengalaman yang tak terlupakan, dengan pemandangan tebing karst, ombak selatan, dan desa-desa nelayan yang autentik. Jalur Lintas Selatan (JLS) Pacitan menawarkan petualangan yang menantang namun mempesona, mirip dengan Great Ocean Road-nya Indonesia. Artikel ini akan memandu Anda mulai dari persiapan, rute, destinasi wajib, hingga tips aman berkendara.
