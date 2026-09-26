@@ -11,7 +11,6 @@ tags:
   - hidden gems
   - Yogyakarta
 ---
-
 Yogyakarta selalu punya cara untuk memikat hati para pelancong. Di balik kemasyhuran Malioboro dan Candi Borobudur, terdapat banyak hidden gems tempat wisata tersembunyi di Yogyakarta yang menawarkan keindahan autentik tanpa keramaian. Jika kamu bosan dengan destinasi mainstream dan ingin merasakan petualangan yang lebih personal, artikel ini adalah panduan tepat untukmu. Kami telah merangkum 10 spot tersembunyi yang wajib masuk daftar perjalananmu, lengkap dengan informasi akses, daya tarik, dan tips berkunjung.
 
 ## Apa Saja Hidden Gems di Yogyakarta yang Wajib Dikunjungi?
@@ -21,12 +20,15 @@ Hidden gems di Yogyakarta adalah destinasi wisata yang belum banyak diketahui pu
 ## Mengapa Memilih Hidden Gems di Yogyakarta?
 
 ### Keindahan yang Masih Alami
+
 Salah satu alasan utama memilih hidden gems adalah kealamiannya. Tempat-tempat ini belum banyak tersentuh pembangunan massal, sehingga ekosistemnya masih terjaga. Kamu bisa menikmati udara segar, pemandangan hijau, dan suara alam yang menenangkan. Misalnya, **Curug Sidoharjo** menawarkan air terjun bertingkat dengan kolam alami yang jernih, jauh dari kebisingan kota.
 
 ### Suasana Tenang dan Privat
+
 Berbeda dengan destinasi populer yang selalu ramai, hidden gems memberikan ketenangan. Kamu bisa bersantai tanpa harus berdesakan dengan pengunjung lain. **Pantai Srakung** di Gunungkidul, misalnya, adalah pantai tersembunyi dengan pasir putih dan air biru yang tenang, cocok untuk kamu yang ingin melarikan diri sejenak dari rutinitas.
 
 ### Harga yang Lebih Terjangkau
+
 Karena belum terlalu dikenal, tiket masuk dan fasilitas di hidden gems biasanya lebih murah. Beberapa bahkan gratis, hanya dikenakan biaya parkir. Ini tentu menguntungkan bagi para backpacker atau wisatawan dengan budget terbatas.
 
 ## 10 Hidden Gems Tempat Wisata Tersembunyi di Yogyakarta
@@ -34,6 +36,8 @@ Karena belum terlalu dikenal, tiket masuk dan fasilitas di hidden gems biasanya 
 ### 1. Bukit Pengilon: Surga Tersembunyi di Kulon Progo
 
 Bukit Pengilon terletak di Desa Hargowilis, Kulon Progo. Tempat ini menawarkan pemandangan hamparan perbukitan hijau yang memukau, sering disebut sebagai "Bukit Teletubbies" karena bentuknya yang menyerupai bukit-bukit di film anak-anak tersebut. Dari puncaknya, kamu bisa melihat gugusan pegunungan Menoreh dan kabut tipis yang menyelimuti di pagi hari.
+
+![Suasana bukit Pengilon siang hari di Dusun Wates, Gunungkidul, Yogyakarta. ](https://www.traveloka.com/id-id/explore/destination/bukit-pengilon-acc/404074 "Salah satu hidden gem Yogyakarta yang wajib dikunjungi 2026.")
 
 **Akses:** Dari pusat Yogyakarta, perjalanan sekitar 1,5 jam menggunakan kendaraan pribadi. Jalan menuju lokasi cukup menanjak dan berkelok, jadi pastikan kendaraan dalam kondisi prima.
 
@@ -113,27 +117,27 @@ Blue Lagoon terletak di Desa Kemadang, Gunungkidul, tidak jauh dari Puncak Segor
 
 ## Perbandingan Hidden Gems di Yogyakarta
 
-| Nama Tempat | Lokasi | Jarak dari Yogyakarta | Tiket Masuk | Aktivitas Utama | Tingkat Kesulitan Akses |
-|-------------|--------|----------------------|-------------|-----------------|--------------------------|
-| Bukit Pengilon | Kulon Progo | 1,5 jam | Rp10.000 | Foto, piknik | Sedang |
-| Puncak Segoro | Gunungkidul | 1,5 jam | Rp5.000 | Sunset, foto | Sedang |
-| Curug Sidoharjo | Kulon Progo | 1 jam 45 menit | Rp5.000 | Berenang, trekking | Sulit |
-| Geoforest Watu Payung | Gunungkidul | 1,5 jam | Rp10.000 | Trekking, foto | Sedang |
-| Pantai Srakung | Gunungkidul | 1,5 jam | Rp10.000 | Berenang, piknik | Sedang |
-| Hutan Pinus Mangunan | Bantul | 1 jam | Rp10.000 | Foto, trekking | Mudah |
-| Air Terjun Kedung Kandang | Kulon Progo | 1,5 jam | Rp5.000 | Berenang, foto | Sedang |
-| Tebing Breksi | Sleman | 30 menit | Rp10.000 | Foto, sunset | Mudah |
-| Embung Nglanggeran | Gunungkidul | 1,5 jam | Rp5.000 | Berkemah, foto | Mudah |
-| Blue Lagoon | Gunungkidul | 1,5 jam | Rp10.000 | Berenang, foto | Sedang |
+| Nama Tempat               | Lokasi      | Jarak dari Yogyakarta | Tiket Masuk | Aktivitas Utama    | Tingkat Kesulitan Akses |
+| ------------------------- | ----------- | --------------------- | ----------- | ------------------ | ----------------------- |
+| Bukit Pengilon            | Kulon Progo | 1,5 jam               | Rp10.000    | Foto, piknik       | Sedang                  |
+| Puncak Segoro             | Gunungkidul | 1,5 jam               | Rp5.000     | Sunset, foto       | Sedang                  |
+| Curug Sidoharjo           | Kulon Progo | 1 jam 45 menit        | Rp5.000     | Berenang, trekking | Sulit                   |
+| Geoforest Watu Payung     | Gunungkidul | 1,5 jam               | Rp10.000    | Trekking, foto     | Sedang                  |
+| Pantai Srakung            | Gunungkidul | 1,5 jam               | Rp10.000    | Berenang, piknik   | Sedang                  |
+| Hutan Pinus Mangunan      | Bantul      | 1 jam                 | Rp10.000    | Foto, trekking     | Mudah                   |
+| Air Terjun Kedung Kandang | Kulon Progo | 1,5 jam               | Rp5.000     | Berenang, foto     | Sedang                  |
+| Tebing Breksi             | Sleman      | 30 menit              | Rp10.000    | Foto, sunset       | Mudah                   |
+| Embung Nglanggeran        | Gunungkidul | 1,5 jam               | Rp5.000     | Berkemah, foto     | Mudah                   |
+| Blue Lagoon               | Gunungkidul | 1,5 jam               | Rp10.000    | Berenang, foto     | Sedang                  |
 
 ## Tips Berkunjung ke Hidden Gems Yogyakarta
 
-- **Gunakan kendaraan pribadi** karena akses transportasi umum masih terbatas.
-- **Bawa bekal makanan dan minuman** karena minimnya warung di sekitar lokasi.
-- **Jaga kebersihan** dengan membawa kantong sampah sendiri.
-- **Patuhi aturan setempat** dan jangan merusak lingkungan.
-- **Datang di hari biasa** untuk menghindari keramaian.
-- **Cek kondisi cuaca** sebelum berangkat, terutama jika ingin ke pantai atau air terjun.
+* **Gunakan kendaraan pribadi** karena akses transportasi umum masih terbatas.
+* **Bawa bekal makanan dan minuman** karena minimnya warung di sekitar lokasi.
+* **Jaga kebersihan** dengan membawa kantong sampah sendiri.
+* **Patuhi aturan setempat** dan jangan merusak lingkungan.
+* **Datang di hari biasa** untuk menghindari keramaian.
+* **Cek kondisi cuaca** sebelum berangkat, terutama jika ingin ke pantai atau air terjun.
 
 ## Kesimpulan
 
