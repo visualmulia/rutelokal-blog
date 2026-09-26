@@ -37,7 +37,7 @@ Karena belum terlalu dikenal, tiket masuk dan fasilitas di hidden gems biasanya 
 
 Bukit Pengilon terletak di Desa Hargowilis, Kulon Progo. Tempat ini menawarkan pemandangan hamparan perbukitan hijau yang memukau, sering disebut sebagai "Bukit Teletubbies" karena bentuknya yang menyerupai bukit-bukit di film anak-anak tersebut. Dari puncaknya, kamu bisa melihat gugusan pegunungan Menoreh dan kabut tipis yang menyelimuti di pagi hari.
 
-![Suasana bukit Pengilon siang hari di Dusun Wates, Gunungkidul, Yogyakarta. ](https://www.traveloka.com/id-id/explore/destination/bukit-pengilon-acc/404074 "Salah satu hidden gem Yogyakarta yang wajib dikunjungi 2026.")
+![Suasana bukit Pengilon siang hari di Dusun Wates, Gunungkidul, Yogyakarta. ](https://populi.id/wp-content/uploads/2026/05/Bukit-Pengilon.webp "Salah satu hidden gem Yogyakarta yang wajib dikunjungi 2026.")
 
 **Akses:** Dari pusat Yogyakarta, perjalanan sekitar 1,5 jam menggunakan kendaraan pribadi. Jalan menuju lokasi cukup menanjak dan berkelok, jadi pastikan kendaraan dalam kondisi prima.
 
@@ -46,6 +46,8 @@ Bukit Pengilon terletak di Desa Hargowilis, Kulon Progo. Tempat ini menawarkan p
 ### 2. Puncak Segoro: Menikmati Laut dari Ketinggian
 
 Puncak Segoro berlokasi di Gunungkidul, tepatnya di Desa Kemadang, Kecamatan Tanjungsari. Dari sini, kamu bisa melihat hamparan laut selatan yang biru membentang luas, berpadu dengan tebing-tebing karst yang menjulang. Tempat ini sangat cocok untuk menikmati matahari terbenam yang memukau.
+
+![Menikmati keindahan sunset di puncak Segoro Yogyakarta](https://ik.imgkit.net/tvlk/blog/2025/06/Wisata-Jogja-2022-Traveloka-Xperience-Puncak-Segoro-819x1024-1.webp "Salah satu tempat favorit menikmati sunset di puncak Segoro Yogyakarta.")
 
 **Akses:** Sekitar 1,5 jam berkendara dari Yogyakarta. Jalan cukup baik, namun ada beberapa tanjakan curam.
 
