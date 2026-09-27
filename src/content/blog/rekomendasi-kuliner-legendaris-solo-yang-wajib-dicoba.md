@@ -1,12 +1,15 @@
 ---
-title: "Rekomendasi Kuliner Legendaris Solo yang Wajib Dicoba: 10 Hidangan Ikonik dengan Cita Rasa Autentik"
-date: "2026-09-25"
-author: "Admin"
-featured_image: ""
+title: "Rekomendasi Kuliner Legendaris Solo yang Wajib Dicoba: 10 Hidangan
+  Ikonik dengan Cita Rasa Autentik"
+date: 2026-09-25
+author: Admin
+featured_image: /images/uploads/hidangan-kuliner-solo-wajib-di-coba.jpg
+description: Jelajahi rekomendasi kuliner legendaris Solo yang wajib dicoba,
+  dari Nasi Liwet Bu Wongso Lemu hingga Timlo Sastro. Lengkap dengan lokasi,
+  harga, dan jam buka.
 tags:
-  - "Kuliner Solo"
-  - "Wisata Kuliner"
-description: "Jelajahi rekomendasi kuliner legendaris Solo yang wajib dicoba, dari Nasi Liwet Bu Wongso Lemu hingga Timlo Sastro. Lengkap dengan lokasi, harga, dan jam buka."
+  - Kuliner Solo
+  - Wisata Kuliner
 ---
 
 Solo, atau Surakarta, bukan hanya terkenal dengan budaya Jawa yang kental, tetapi juga surga kuliner legendaris yang menggugah selera. Jika Anda sedang merencanakan wisata kuliner ke kota ini, **rekomendasi kuliner legendaris Solo yang wajib dicoba** menjadi panduan esensial untuk merasakan cita rasa autentik yang telah bertahan puluhan tahun. Dari nasi liwet gurih hingga timlo yang segar, setiap hidangan menyimpan sejarah dan keunikan tersendiri. Artikel ini akan mengulas secara mendalam 10 kuliner legendaris Solo, lengkap dengan informasi lokasi, jam buka, kisaran harga, serta tips menikmatinya. Simak panduan lengkapnya berikut ini.
